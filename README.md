@@ -1,3 +1,4 @@
-# HAIHAII
 ![Alt Text](https://github.com/magicaldoctor/i-love-myself-yall-barksbarks/blob/main/Tak%20berjudul659_20250410205012.png)
-Im a cool person i swear talk to me mmmeow 
+┆▓▒░ ˙⊹˚ Ꮺ ˙•˚⌑ ⊹˚☆ ˙ও ˚⊹ ✰ᯓ˚.˙•.⊹܀
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31mwhcihbmswnvz3fny2bopk52lu&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=632812&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31mwhcihbmswnvz3fny2bopk52lu&redirect=true)
+⚊⚊⚋⚊⚊⚋⚊⚊⚋⚊⚋⚋⚋ᯓ⚋ᯓ࿐
